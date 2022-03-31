@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Everything will be OK！
+Everything will be ok！have fun！
 
 
 <!--
